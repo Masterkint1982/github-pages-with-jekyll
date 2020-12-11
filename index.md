@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome Welcome, 
 
-I'm glad you are here. I plan to talk about ...
+We'll speak about finance today.
